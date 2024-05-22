@@ -1,3 +1,1 @@
-https://online.utkarsh.com/development/web/Course/new_single_book_details?id=OsTsPHQlEE9%2FGNg9uydjo2VTxEjgDo0ckc0vccfSA354rTepaSM8KFAaBkfue%2BGF
-https://online.utkarsh.com/development/web/Course/new_single_book_details?id=U6WyMPZBygH1NKY9pdPwAAoI9mvyiSN70U4tCHc3vN6pZJ9Z9IT4OoMiCn6%2FDr4s
-https://online.utkarsh.com/development/web/Course/new_single_book_details?id=vWrrf%2FnBu5KlFdh%2FxsQ81BnX2I14y%2F1Bbnegtjwp8PkUbdxl0YchVZcF92iEhowI
+
